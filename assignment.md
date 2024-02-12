@@ -12,9 +12,9 @@
 - The tortoise kept silent and didn’t pay heed to the hare’s words.
 
 - The race began at the count of
-  -### **one...**
-  -## **two...** and
-  # **three!**
+  **one...**
+  **two...** and
+  ### **three!**
 - The hare immediately started running and the tortoise started at its usual slow pace. Soon the hare reached a long way ahead almost a few yards from the finish line. He looked back to check if the tortoise was anywhere nearby. However, the tortoise was left far behind and almost could not be seen.
 
 The hare decided to pause and take some rest on the way before he completed the race. He looked around and to his left, he noticed a field of cabbages and carrots. He decided to snack on cabbage and take a short nap so that he would quickly run past the finish line in a fresh mood.
