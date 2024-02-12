@@ -15,13 +15,17 @@
   **one...**
   **two...** and
   ### **three!**
-- The hare immediately started running and the tortoise started at its usual slow pace. Soon the hare reached a long way ahead almost a few yards from the finish line. He looked back to check if the tortoise was anywhere nearby. However, the tortoise was left far behind and almost could not be seen.
+- The hare immediately started running and the tortoise started at its usual slow pace. Soon the hare reached a long way ahead almost a few yards from the finish line. He looked back to check if the tortoise was anywhere nearby. However, the tortoise was left far behind and <ins>almost could not be seen.</ins>
 
 The hare decided to pause and take some rest on the way before he completed the race. He looked around and to his left, he noticed a field of cabbages and carrots. He decided to snack on cabbage and take a short nap so that he would quickly run past the finish line in a fresh mood.
+
+![image 2](https://www.google.com/url?sa=i&url=https%3A%2F%2Fchurchleaders.com%2Fpastors%2Fpastor-articles%2F249456-tortoise-hare-principle-organizational-leadership.html&psig=AOvVaw0CFJWXFQ-sx2RVPUZdhFlM&ust=1707858984766000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCODswdvcpoQDFQAAAAAdAAAAABAI)
 
 Soon the hare fell into a deep sleep and dreamt of winning the competition. Time passed and the sun was already setting when he suddenly woke up. He quickly jumped to check if the tortoise was around. To his dismay, the tortoise was just a few steps away from the finish line.
 
 Seeing the tortoise close to the finish line, the hare rushed towards it as fast as he could. However, it was too late and the tortoise finally crossed the finish line, thereby winning the competition.
+
+!(image 3)[https://churchillhead.files.wordpress.com/2016/10/tortoise_hare.jpg?w=676]
 
 When the hare reached the point where the race ended, all the animals were laughing at him for losing the race to the tortoise. That day, he learnt a lesson that bragging about something doesn’t win you accolades, hence you should never mock others for their own pace.
 
