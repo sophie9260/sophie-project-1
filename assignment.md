@@ -15,4 +15,4 @@ Seeing the tortoise close to the finish line, the hare rushed towards it as fast
 
 When the hare reached the point where the race ended, all the animals were laughing at him for losing the race to the tortoise. That day, he learnt a lesson that bragging about something doesn’t win you accolades, hence you should never mock others for their own pace.
 
-Link to the ]story](https://byjus.com/kids-learning/moral-stories-the-tortoise-and-the-hare/)
+Link to the [story](https://byjus.com/kids-learning/moral-stories-the-tortoise-and-the-hare/)
