@@ -20,7 +20,7 @@ The hare immediately started running and the tortoise started at its usual slow 
 
 The hare decided to pause and take some rest on the way before he completed the race. He looked around and to his left, he noticed a field of cabbages and carrots. He decided to snack on cabbage and take a short nap so that he would quickly run past the finish line in a fresh mood.
 
-![image 2](https://www.google.com/url?sa=i&url=https%3A%2F%2Fchurchleaders.com%2Fpastors%2Fpastor-articles%2F249456-tortoise-hare-principle-organizational-leadership.html&psig=AOvVaw0CFJWXFQ-sx2RVPUZdhFlM&ust=1707858984766000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCODswdvcpoQDFQAAAAAdAAAAABAI)
+![image 2](https://cdn.churchleaders.com/wp-content/uploads/2015/03/3.13.CC.TortoiseHareLeadership.jpg?_gl=1*wjq9b1*_gcl_au*OTE3NzIxOTU4LjE3MDc3ODQyOTU.)
 
 Soon the hare fell into a deep sleep and dreamt of winning the competition. Time passed and the sun was already setting when he suddenly woke up. He quickly jumped to check if the tortoise was around. To his dismay, the tortoise was just a few steps away from the finish line.
 
